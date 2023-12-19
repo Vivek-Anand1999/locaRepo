@@ -1,2 +1,1 @@
-#This is my second my name is Vivek
-Right now I am working on the features1 Project.
+It can also be a fun way to surprise others. You might choose to share a random sentence on social media just to see what type of reaction it garners from others. It's an unexpected move that might create more conversation than a typical post or tweet.
